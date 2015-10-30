@@ -1,15 +1,1 @@
-da
-d
-a
-d
-a
-asadabcd
-asndil
-asdasda
-as
-d
-dasdasda
-as
-adnu
-dahsdkadasd
-asdasdaad
+anil
